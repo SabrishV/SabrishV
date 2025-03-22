@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **Cyber Security, Networking, Gaming, Cloud**
 
-- 📫 How to reach me **sabrishvaradharajan@gmail.com**
+- 📫 How to reach me **sabrishv11@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
